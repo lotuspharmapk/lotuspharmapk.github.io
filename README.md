@@ -1,1 +1,0 @@
-# lotuspharmapk.github.io
